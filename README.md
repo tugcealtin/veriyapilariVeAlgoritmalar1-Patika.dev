@@ -1,0 +1,1 @@
+# veriyapilariVeAlgoritmalar1-Patika.dev
